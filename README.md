@@ -1,6 +1,3 @@
-
-
-
 ![Uploading R.gif…]()
 - 👋 Hi, I’m @AndzisoKhosa
 - 👀 I’m interested in very little sleep, basketball and gaming
