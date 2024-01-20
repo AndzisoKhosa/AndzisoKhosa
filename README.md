@@ -1,4 +1,4 @@
-![Uploading R.gif…]()
+
 - 👋 Hi, I’m @AndzisoKhosa
 - 👀 I’m interested in very little sleep, basketball and gaming
 - 🌱 I’m currently studying Computer Science and Computer engineering at the University of Cape Town
