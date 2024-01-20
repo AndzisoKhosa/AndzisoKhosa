@@ -1,4 +1,4 @@
-![Uploading R.gif…]()
+![R](https://github.com/AndzisoKhosa/AndzisoKhosa/assets/138158612/c68921d2-10f8-4ad0-968a-4598a35acb6e)
 - 👋 Hi, I’m @AndzisoKhosa
 - 👀 I’m interested in very little sleep, basketball and gaming
 - 🌱 I’m currently studying Computer Science and Computer engineering at the University of Cape Town
